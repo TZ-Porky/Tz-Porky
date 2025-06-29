@@ -15,8 +15,8 @@
 - [ImmunoWarriors](https://github.com/TZ-Porky/ImmunoWarriors)
 
 ### 💬 Let's Connect
-- 📧 Email: theophile.bille@example.com
-- 💼 LinkedIn: [THEOPHILE BILLE](https://www.linkedin.com/in/THEOPHILEBILLE) 
+- 📧 Email: btkextensions@gmail.com or billetheophilekevin@gmail.com
+- 💼 LinkedIn: [THEOPHILE BILLE](https://www.linkedin.com/in/kevin-bille-théophile-76b21a334) 
 
 ### GitHub Overview
 
